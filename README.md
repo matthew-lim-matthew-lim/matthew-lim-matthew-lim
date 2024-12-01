@@ -1,1 +1,1 @@
-making things for humans
+the code isn't gonna write itself (yet!)
