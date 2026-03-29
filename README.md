@@ -1,10 +1,12 @@
-making stuff is my passion hehe
+making stuff is my passion
 
-i hope to have some sort of impact
+i hope to leverage this and have some sort of meaningful impact before i die
 
 but for now im trying to learn
 
-maybe one day ill be able to have it, ill do my best to get there in the meantime
+maybe one day ill be able to earn it
+
+ill do my best to get there in the meantime
 
 [https://www.mattlim.net/](https://www.mattlim.net/)
 
