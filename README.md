@@ -2,7 +2,7 @@ making stuff is my passion
 
 i hope to leverage this and have some sort of meaningful impact before i die
 
-hopefully one day ill be able to get there
+with enough luck maybe one day ill be able to have enough skill and respect to be able to have a platform to do that
 
 but for now im trying to learn
 
