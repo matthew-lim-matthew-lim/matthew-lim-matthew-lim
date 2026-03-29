@@ -13,3 +13,5 @@ but i dont think anyone will read this apart from myself
 mattlsixhundred@gmail.com
 
 previously at prospa, resmed, voqoai, airwallex, tiktok
+
+i also got a co-op scholarship worth 88,000 dollars, and also made a startup where i was interviewed by ycombinator and startmate
