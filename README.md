@@ -14,4 +14,4 @@ mattlsixhundred@gmail.com
 
 previously at prospa, resmed, voqoai, airwallex, tiktok
 
-i also got a co-op scholarship worth 88,000 dollars, and also made a startup where i was interviewed by ycombinator and startmate
+i also got a co-op scholarship worth 88,000 dollars, and also made a startup where i was interviewed by ycombinator and startmate. i also teach at my university
