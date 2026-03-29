@@ -6,7 +6,7 @@ but for now im trying to learn
 
 maybe one day ill be able to have it, ill do my best to get there in the meantime
 
-based in sydney
+but i dont think anyone will read this apart from myself
 
 [https://www.mattlim.net/](https://www.mattlim.net/)
 
